@@ -6,7 +6,8 @@ Our privacy policy will help you understand what information we collect at *Simp
 *Simple Sheet* built the *Simple Sheet* app as a free app. This SERVICE is provided by *Simple Sheet* at no cost and is intended for use as is.
 
 
-## Simple Sheet Do Not Collect Any Informatiom. Absolutely nothing. Simple Sheet provide the best of security and privacy safety by eliminating the root case, Internet connectivity. Simple Sheet makes zero Internet connection. Have a Good day.
+### Simple Sheet Do Not Collect Any Informatiom. 
+Absolutely collects nothing. Simple Sheet provide the best of security and privacy safety by eliminating the root case, Internet connectivity. Simple Sheet makes zero Internet connection. Have a Good day.
 
 ### Contact Us  
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.  
